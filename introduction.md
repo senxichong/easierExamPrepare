@@ -1,0 +1,1 @@
+This is all about my opinion on how to prepare the gaokao,which has signaficant importance on Chinese students.It has four chapters,including studying details,mental adjustments,genaral methods and the reasons why all students need to do this.  
