@@ -1,0 +1,2 @@
+## why You need to do best?
+All you can do in the exam is what you get used to doing in the daily life.It's called "muscle memory".For example,if you usually don't read the questions carefully,then the most possible case is you will miss some essential information you need.
